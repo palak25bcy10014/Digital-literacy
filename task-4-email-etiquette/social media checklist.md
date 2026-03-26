@@ -6,7 +6,7 @@
 * Give credit when sharing someone else's content.
 * Use professional platforms like LinkedIn for networking. 
 
-3# Don'ts
+# Don'ts
 * Don't post sensitive personal info like your home address.
 * Don't engage in or encourage cyberbullying. 
 * Don't use unprofessional language or offensive slurs.
